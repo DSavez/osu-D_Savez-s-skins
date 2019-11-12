@@ -18,3 +18,6 @@
 # [White_Chitanda D_Savez's Edit](https://vk.com/doc549599873_525260767?hash=0c0f79de65e15d441f&dl=bfcf948b2936c2a90f)
 # Old Main Skin
 ![.](https://sun9-29.userapi.com/c853628/v853628294/15697e/Gz_uJOzg120.jpg)
+
+# [Rafis GreenCursor](http://puu.sh/DD1aK/53a5aa7cc4.osk)
+![.](https://sun9-53.userapi.com/c853628/v853628294/1569ee/6P35vNW9bSA.jpg)
