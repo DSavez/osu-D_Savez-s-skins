@@ -30,9 +30,9 @@
 
 # [Aristia Edit](https://drive.google.com/file/d/15TqaeQqvn0Rse1WL0cBl7LqqVtP8O4hJ/view)
 ![.](https://sun9-30.userapi.com/c853628/v853628294/156a3d/dolvQsKiY5c.jpg)
-
-# [Delis Except It Is Varvalian](https://sun9-68.userapi.com/c853628/v853628294/156a59/u7e3SYmmit4.jpg)
-![.](https://mizaruyea.s-ul.eu/5lSwk7ay)
+https://sun9-68.userapi.com/c853628/v853628294/156a59/u7e3SYmmit4.jpg
+# [Delis Except It Is Varvalian](https://mizaruyea.s-ul.eu/5lSwk7ay)
+![.](https://sun9-68.userapi.com/c853628/v853628294/156a59/u7e3SYmmit4.jpg)
 
 # [Vaxei HD](http://puu.sh/DWnMD/3efa7ff98d.osk)
 ![.](https://sun9-57.userapi.com/c853628/v853628294/156a7e/_qfSDe2k170.jpg)
