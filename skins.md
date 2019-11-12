@@ -14,3 +14,7 @@
 # [Pixel Atmosphere](https://drive.google.com/file/d/1O6hqCdY4e9yLhkmzDW37LOyOrwXT4rna/view)
 # Mostly for DT
 ![.](https://sun9-44.userapi.com/c853628/v853628294/15692b/zu79zw56W0Q.jpg)
+
+# [White_Chitanda D_Savez's Edit](https://vk.com/doc549599873_525260767?hash=0c0f79de65e15d441f&dl=bfcf948b2936c2a90f)
+# Old Main Skin
+![.](https://sun9-29.userapi.com/c853628/v853628294/15697e/Gz_uJOzg120.jpg)
