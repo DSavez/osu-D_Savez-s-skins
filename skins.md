@@ -19,5 +19,15 @@
 # Old Main Skin
 ![.](https://sun9-29.userapi.com/c853628/v853628294/15697e/Gz_uJOzg120.jpg)
 
-# [Rafis GreenCursor](http://puu.sh/DD1aK/53a5aa7cc4.osk)
+# [Rafis Green Cursor](http://puu.sh/DD1aK/53a5aa7cc4.osk)
 ![.](https://sun9-53.userapi.com/c853628/v853628294/1569ee/6P35vNW9bSA.jpg)
+
+# [OwoTuna Spare](http://puu.sh/DMlzy/bd8f5f83b4.osk)
+![.](https://sun9-21.userapi.com/c853628/v853628294/1569ff/z8DaIY3tjks.jpg)
+
+# [Angelsim 2017](https://drive.google.com/file/d/1EEBABFRSyWctLPN8_zL8CHL-4ixXaVGf/view)
+![.](https://sun9-12.userapi.com/c853628/v853628294/156a12/WWH90dm7JyY.jpg)
+
+# [Aristia Edit](https://drive.google.com/file/d/15TqaeQqvn0Rse1WL0cBl7LqqVtP8O4hJ/view)
+![.](https://sun9-30.userapi.com/c853628/v853628294/156a3d/dolvQsKiY5c.jpg)
+
