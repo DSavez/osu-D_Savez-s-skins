@@ -1,4 +1,4 @@
-# D_Savez skins compilation
+# Skins that i use
 
 # [HP Bar](https://i.imgur.com/HCaZBhN.png)
 ![](https://i.imgur.com/HCaZBhN.png)
@@ -31,3 +31,11 @@
 # [Aristia Edit](https://drive.google.com/file/d/15TqaeQqvn0Rse1WL0cBl7LqqVtP8O4hJ/view)
 ![.](https://sun9-30.userapi.com/c853628/v853628294/156a3d/dolvQsKiY5c.jpg)
 
+# [Delis Except It Is Varvalian](https://sun9-68.userapi.com/c853628/v853628294/156a59/u7e3SYmmit4.jpg)
+![.](https://mizaruyea.s-ul.eu/5lSwk7ay)
+
+# [Vaxei HD](http://puu.sh/DWnMD/3efa7ff98d.osk)
+![.](https://sun9-57.userapi.com/c853628/v853628294/156a7e/_qfSDe2k170.jpg)
+  
+# [Rafis Blue Cursor Vaxei Edit](https://drive.google.com/file/d/10uYpYzZ2c5oZAIhTOHp9o31fO0_xHv7d/view)
+![.](https://sun9-53.userapi.com/c853628/v853628294/156a92/PxTeGXEcRpg.jpg)
