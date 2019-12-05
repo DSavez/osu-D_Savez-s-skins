@@ -3,6 +3,10 @@
 # [HP Bar](https://i.imgur.com/HCaZBhN.png)
 ![](https://i.imgur.com/HCaZBhN.png)
 
+# [Surely One Day D_Savez's Edit](https://vk.com/doc315562825_527152427?hash=997db08df0af682889&dl=177622f0837bf25dc0)
+# Main Skin 
+![.](https://i.imgur.com/EkvG2Yq.png)
+
 # [Mathi Esalanda 1.5 D_Savez's Edit](https://vk.com/doc549599873_525233560)
 # Main Skin
 ![.](https://sun9-67.userapi.com/c853628/v853628347/157595/tCVIjqd26zQ.jpg)
