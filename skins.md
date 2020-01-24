@@ -4,7 +4,7 @@
 ![](https://i.imgur.com/HCaZBhN.png)
 
 # [Surely One Day D_Savez's Edit](https://vk.com/doc315562825_527152427?hash=997db08df0af682889&dl=177622f0837bf25dc0)
-# Main Skin 
+# Main Skin, most often used in scoreposts 
 ![.](https://i.imgur.com/EkvG2Yq.png)
 
 # [Mathi Esalanda 1.5 D_Savez's Edit](https://vk.com/doc549599873_525233560)
