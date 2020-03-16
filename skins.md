@@ -7,9 +7,9 @@
 # Main Skin, most often used in scoreposts 
 ![.](https://i.imgur.com/EkvG2Yq.png)
 
-# [Mathi Remake](https://i.imgur.com/f7ZCErK.png)
+# [Mathi Remake](https://vk.com/doc315562825_540859131?hash=f0a7e5705f1d586b22&dl=8b7b27673ac7f81d8c)
 # Main Skin
-![.](https://vk.com/doc315562825_540859131?hash=f0a7e5705f1d586b22&dl=8b7b27673ac7f81d8c)
+![.](https://i.imgur.com/f7ZCErK.png)
 
 
 # [Mathi Esalanda 1.5 D_Savez's Edit](https://vk.com/doc549599873_525233560)
