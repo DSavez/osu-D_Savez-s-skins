@@ -46,6 +46,9 @@
 # [Aristia Edit](https://drive.google.com/file/d/15TqaeQqvn0Rse1WL0cBl7LqqVtP8O4hJ/view)
 ![.](https://sun9-30.userapi.com/c853628/v853628294/156a3d/dolvQsKiY5c.jpg)
 
+# [-+Aesthetic 1.3.11](https://drive.google.com/file/d/1tWT3bywJyF8GvNmdHuVXC7nGP5Q2kupe/view)
+![.](https://i.imgur.com/xADowdq.png)
+
 # [Delis Except It Is Varvalian](https://mizaruyea.s-ul.eu/5lSwk7ay)
 ![.](https://sun9-68.userapi.com/c853628/v853628294/156a59/u7e3SYmmit4.jpg)
 
