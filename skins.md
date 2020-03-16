@@ -29,11 +29,14 @@
 # [Pixel Atmosphere](https://drive.google.com/file/d/1O6hqCdY4e9yLhkmzDW37LOyOrwXT4rna/view)
 ![.](https://sun9-44.userapi.com/c853628/v853628294/15692b/zu79zw56W0Q.jpg)
 
-# [OwoTuna Spare](http://puu.sh/DMlzy/bd8f5f83b4.osk)
+# [OwoTuna Spare (idk maybe not, but i was him playing with this one)](http://puu.sh/DMlzy/bd8f5f83b4.osk)
 ![.](https://sun9-21.userapi.com/c853628/v853628294/1569ff/z8DaIY3tjks.jpg)
 
 # [Angelsim 2017](https://drive.google.com/file/d/1EEBABFRSyWctLPN8_zL8CHL-4ixXaVGf/view)
 ![.](https://sun9-12.userapi.com/c853628/v853628294/156a12/WWH90dm7JyY.jpg)
+
+# [Angelsim 2019](https://vk.com/doc315562825_540857579?hash=d360f7946ae3731727&dl=796080946fd16ab330)
+![.](https://i.imgur.com/bZHKqdp.png)
 
 # [Aristia Edit](https://drive.google.com/file/d/15TqaeQqvn0Rse1WL0cBl7LqqVtP8O4hJ/view)
 ![.](https://sun9-30.userapi.com/c853628/v853628294/156a3d/dolvQsKiY5c.jpg)
