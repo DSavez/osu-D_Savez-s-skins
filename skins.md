@@ -16,6 +16,10 @@
 # Main Skin
 ![.](https://sun9-67.userapi.com/c853628/v853628347/157595/tCVIjqd26zQ.jpg)
 
+# [Megumin2K Edit] (https://vk.com/doc315562825_543485177?hash=ebe1606c78b691f63d&dl=02c4350d3e04f9d49a)
+# EZ Mode Skin
+![.](https://i.imgur.com/EmyZC51.png)
+
 # [White_Chitanda D_Savez's Edit](https://vk.com/doc549599873_525260767?hash=0c0f79de65e15d441f&dl=bfcf948b2936c2a90f)
 # Old Main Skin
 ![.](https://sun9-29.userapi.com/c853628/v853628294/15697e/Gz_uJOzg120.jpg)
