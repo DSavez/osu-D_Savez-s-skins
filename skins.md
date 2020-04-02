@@ -16,7 +16,7 @@
 # Main Skin
 ![.](https://sun9-67.userapi.com/c853628/v853628347/157595/tCVIjqd26zQ.jpg)
 
-# [Megumin2K Edit] (https://vk.com/doc315562825_543485177?hash=ebe1606c78b691f63d&dl=02c4350d3e04f9d49a)
+# [Megumin2K Edit](https://vk.com/doc315562825_543485177?hash=ebe1606c78b691f63d&dl=02c4350d3e04f9d49a)
 # EZ Mode Skin
 ![.](https://i.imgur.com/EmyZC51.png)
 
