@@ -38,7 +38,7 @@
 # [Pixel Atmosphere](https://drive.google.com/file/d/1O6hqCdY4e9yLhkmzDW37LOyOrwXT4rna/view)
 ![.](https://sun9-44.userapi.com/c853628/v853628294/15692b/zu79zw56W0Q.jpg)
 
-# [OwoTuna Spare (idk maybe not, but i was him playing with this one)](http://puu.sh/DMlzy/bd8f5f83b4.osk)
+# [OwoTuna Spare (idk maybe not, but i saw him playing with this one)](http://puu.sh/DMlzy/bd8f5f83b4.osk)
 ![.](https://sun9-21.userapi.com/c853628/v853628294/1569ff/z8DaIY3tjks.jpg)
 
 # [Angelsim 2017](https://drive.google.com/file/d/1EEBABFRSyWctLPN8_zL8CHL-4ixXaVGf/view)
