@@ -4,7 +4,7 @@
 ![](https://i.imgur.com/HCaZBhN.png)
 
 # [Surely One Day D_Savez's Edit](https://vk.com/doc315562825_527152427?hash=997db08df0af682889&dl=177622f0837bf25dc0)
-# Main Skin, most often used in scoreposts 
+# Main Skin, also for scoreposts
 ![.](https://i.imgur.com/EkvG2Yq.png)
 
 # [Mathi Remake](https://vk.com/doc315562825_540859131?hash=f0a7e5705f1d586b22&dl=8b7b27673ac7f81d8c)
