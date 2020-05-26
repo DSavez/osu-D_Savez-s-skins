@@ -1,6 +1,7 @@
 # Skins that i use
 # i'll also add here other stuff
 # just wait, im too lazy to add smth here
+# nvm, quit w
 
 # [HP Bar](https://i.imgur.com/HCaZBhN.png)
 ![](https://i.imgur.com/HCaZBhN.png)
