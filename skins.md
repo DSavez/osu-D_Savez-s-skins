@@ -1,7 +1,4 @@
 # Skins that i use
-# i'll also add here other stuff
-# just wait, im too lazy to add smth here
-# nvm, quit w
 
 # [Surely One Day D_Savez's Edit](https://vk.com/doc315562825_527152427?hash=997db08df0af682889&dl=177622f0837bf25dc0)
 # Main Skin, also for scoreposts
